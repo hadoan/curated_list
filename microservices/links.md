@@ -1,0 +1,1 @@
+-  Don’t Create Shared Libraries https://medium.com/standard-bank/microservices-dont-create-shared-libraries-2e803b033552
