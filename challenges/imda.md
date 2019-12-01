@@ -1,0 +1,1 @@
+- https://www.openinnovation.sg/challenges/effective-engagement-through-a-digital-loyalty-programme-749ccc3a-12e9-4d5f-a468-2a1b14592e92#3mc9Xo

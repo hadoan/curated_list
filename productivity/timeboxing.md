@@ -1,0 +1,1 @@
+- https://medium.com/dreimannzelt-adventures/7-secrets-to-master-timeboxing-66a744ea9175
